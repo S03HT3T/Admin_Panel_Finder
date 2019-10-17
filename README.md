@@ -1,1 +1,1 @@
-#                          Enjoy yourself!
+#                          Good luck!
